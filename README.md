@@ -34,11 +34,11 @@ The Component Odyssey team will not act on complaints regarding:
 
 ## Reporting
 
-If you are experiencing harassment, or observe someone else being harassed, please send a direct message to myself or a moderator. You can also send me an email at karoulla.andrico@gmail.com.
+If you are experiencing harassment, or observe someone else being harassed, please send a direct message to myself (Andrico) or a moderator. You can also send me an email at karoulla.andrico@gmail.com.
 
 All reports will be treated with strict confidentiality, and your identity will not be disclosed without your explicit permission when giving a warning or a ban to someone that has broken the Code of Conduct.
 
-If you have been found to break the Code of Conduct, then depending on the severity of the harassment, you’ll be warned or immediately banned at my (andrico) discretion.
+If you have been found to break the Code of Conduct, then depending on the severity of the harassment, you’ll be warned or immediately banned at my (Andrico) discretion.
 
 ## Sharing Work
 
